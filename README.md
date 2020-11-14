@@ -1,0 +1,1 @@
+# platinumyzm.github.io
